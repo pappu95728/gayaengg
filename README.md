@@ -1,2 +1,2 @@
 # gayaengg
-Author Papppu
+Author Pappu
