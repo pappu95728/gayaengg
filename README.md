@@ -1,2 +1,2 @@
 # gayaengg
-Auther Papppu Rajak
+Author Papppu
